@@ -1,1 +1,1 @@
-# Politica-Privacidade-App-Nexun-EDI
+
